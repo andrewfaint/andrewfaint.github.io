@@ -1,1 +1,1 @@
-# http://andrewfaint.github.io
+# http://andrewfaint.lol
